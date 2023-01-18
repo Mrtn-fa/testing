@@ -1,2 +1,2 @@
 # testing
-aquí es donde hago mis pruebas weonas antes de dejar la cagá jojojo
+aquí es donde hago mis pruebas antes de dejar la embarrá jojojo
